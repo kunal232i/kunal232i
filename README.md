@@ -1,6 +1,6 @@
 ### Hello, I'm Kunal Ingawale!👋
 
-- 📫 How to reach me: Twitter - [@kunal_ingawale](https://twitter.com/kunal_ingawale)
+- 📫 How to reach me: Twitter - [@kunal_ingawale](https://twitter.com/kunal_twt_)
 - 😄 Pronouns: He/Him
 
 [![@kunal_232i's Holopin board](https://holopin.io/api/user/board?user=kunal_232i)](https://holopin.io/@kunal_232i)
